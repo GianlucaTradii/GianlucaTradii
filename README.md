@@ -1,4 +1,13 @@
-### Hi there 👋
+### Hello! 🦊
+Welcome to my profile
+
+I'm a sucker for Fantasy lore, art and anything that involves a magic feeling 🪄
+
+📫 You can reach me on my [Instagram profile] (https://www.instagram.com/gianlucaiid_art/) or my [email] (gianlucatradii@gmail.com)
+
+🌱 I’m currently learning Concept Art and GitHub ins and outs, so be gentle please! :)
+
+He/Him (but anything is fine really) ⏫
 
 <!--
 **GianlucaTradii/GianlucaTradii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
